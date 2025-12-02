@@ -27,9 +27,9 @@ ___
       <div align="left">
         <img src="https://pixels.crd.co/assets/images/gallery05/29bf4fca.gif?v=29416114">
         - i'm iris or ray, im 4teen <br>
-        - she/they pls n thank u <3 <br>
+        - she/they <3 <br>
         - dont be shy, bmf!! <br>
-        - ask 4 my socials! <br>
+        - ask for my socials! <br>
    </th>
   </tr>
 </table>
