@@ -1,6 +1,6 @@
 <img align="center" width="1000" height="1000" alt="holy_wow!!" src="https://64.media.tumblr.com/86170f4d166203e914802c7437132a24/5e072def7eb07f06-e9/s640x960/8ad616bb9bf6d61d48269af7686f0963e1ac7b27.gif"/>
 
-<p align="center">˚₊‧꒰ა i hope u die ໒꒱ ‧₊˚</p>
+<p align="center">˚₊‧꒰ა 'if i die tonight tonight i'mma make it look pretty' ໒꒱ ‧₊˚</p>
 <div align="center">
 
 ˚₊‧꒰ა [![Hits](https://hits.sh/github.com/tccprincess.svg?style=plastic&label=HEADSHOT&color=ffcddf&labelColor=ffffff)](https://hits.sh/github.com/tccprincess/) ໒꒱ ‧₊˚
