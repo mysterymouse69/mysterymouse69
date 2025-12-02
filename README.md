@@ -1,3 +1,5 @@
+<p style="font-size=40%;">this repository is 4 a friend.</p>
+
 <img align="center" width="1000" height="1000" alt="holy_wow!!" src="https://64.media.tumblr.com/86170f4d166203e914802c7437132a24/5e072def7eb07f06-e9/s640x960/8ad616bb9bf6d61d48269af7686f0963e1ac7b27.gif"/>
 
 <p align="center">˚₊‧꒰ა i hope u die ໒꒱ ‧₊˚</p>
