@@ -1,14 +1,12 @@
-<img align="center" width="1000" height="1000" alt="holy_wow!!" src="https://dividers.crd.co/assets/images/gallery02/df7f6220.gif?v=05d33f91"/>
+<img align="center" width="1000" height="1000" alt="holy_wow!!" src="https://64.media.tumblr.com/86170f4d166203e914802c7437132a24/5e072def7eb07f06-e9/s640x960/8ad616bb9bf6d61d48269af7686f0963e1ac7b27.gif"/>
 
-
-
-<br>
+<p align="center">˚₊‧꒰ა i hope u die ໒꒱ ‧₊˚</p>
 <div align="center">
 
 ˚₊‧꒰ა [![Hits](https://hits.sh/github.com/tccprincess.svg?style=plastic&label=HEADSHOT&color=ffcddf&labelColor=ffffff)](https://hits.sh/github.com/tccprincess/) ໒꒱ ‧₊˚
 
-<img width="482" height="20" alt="sparkleh" src="https://dividers.crd.co/assets/images/gallery02/3797e1f3.gif?v=05d33f91">
-<img align="center" width="1000" height="1000" alt="holy_wow!!" src="https://dividers.crd.co/assets/images/gallery02/df7f6220.gif?v=05d33f91"/>
+<img width="482" height="20" alt="ok" src="https://mypillowfort.net/media5/tumblr_12e920b47ad208d04539e00463f5f5ad_1844cd93_250.gif"/>
+<img align="center" width="1000" height="1000" alt="sparkleh" src="https://dividers.crd.co/assets/images/gallery02/3797e1f3.gif?v=05d33f91"/>
 
 ___
 
@@ -18,7 +16,7 @@ ___
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&duration=4000&pause=10&color=E9C3E0&center=true&width=435&lines=kiss+kiss+fall+in+love!+%3C3)](https://git.io/typing-svg)
 
-![cute_cute](https://pixels.crd.co/assets/images/gallery35/e39bbce5.gif?v=29416114)
+![cute_cute](https://tomomi.neocities.org/pixeles/257.gif)
 
 [my tumblr page ♡](https://tumblr.com/colvmboner) ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ [my steam account ♡](https://steamcommunity.com/profiles/76561199815401252)
 
@@ -46,7 +44,7 @@ ___
 
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7771c3fd-8ca1-4d70-bb53-ff7123f2791c/djgf7qe-4c6b689c-2dde-4516-883a-a3f8acde929a.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83NzcxYzNmZC04Y2ExLTRkNzAtYmI1My1mZjcxMjNmMjc5MWMvZGpnZjdxZS00YzZiNjg5Yy0yZGRlLTQ1MTYtODgzYS1hM2Y4YWNkZTkyOWEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1fTiBn_Zvojzagv7M9cMZGrpJUB26ywe4KqL8oN1wBQ">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7771c3fd-8ca1-4d70-bb53-ff7123f2791c/djgesy7-edc9291c-30ae-4d84-ac4d-1ce33da0203d.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83NzcxYzNmZC04Y2ExLTRkNzAtYmI1My1mZjcxMjNmMjc5MWMvZGpnZXN5Ny1lZGM5MjkxYy0zMGFlLTRkODQtYWM0ZC0xY2UzM2RhMDIwM2QucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0._bypDulB_oGEJrLyUuwkI090hXunMziwdrY2LCvDeC8">
-<img align="center" width="1000" height="1000" alt="heart_beating!" src="https://twst.ju.mp/assets/images/gallery03/1c6170b4.gif?v=d5a342a6" />
+<img align="center" width="1000" height="1000" alt="heart_beating!" src="https://mypillowfort.net/media5/tumblr_56ec5330762b6ba72c55208bca4ff278_e22414ee_250.gif" />
 </div>
 
 credits to [sergei](https://github.com/iheartbrendonurie) for this awesome page! <3
