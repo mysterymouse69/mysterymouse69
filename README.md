@@ -26,7 +26,7 @@ ___
      <img align="center" width="350" height="30" img src= "https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7771c3fd-8ca1-4d70-bb53-ff7123f2791c/dk5mx5y-55b14f56-51fb-44a5-8f3b-c2b37e1fb1b1.png/v1/fill/w_350,h_19,q_80,strp/aa_improved_dividers___userbars_by_smigglestorm_dk5mx5y-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTkiLCJwYXRoIjoiL2YvNzc3MWMzZmQtOGNhMS00ZDcwLWJiNTMtZmY3MTIzZjI3OTFjL2RrNW14NXktNTViMTRmNTYtNTFmYi00NGE1LThmM2ItYzJiMzdlMWZiMWIxLnBuZyIsIndpZHRoIjoiPD0zNTAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.3JIWv_q3YdJJjdglVUpEbQQiE7988dFFEvxZGAvL9u4"> <br>
       <div align="left">
         <img src="https://pixels.crd.co/assets/images/gallery05/29bf4fca.gif?v=29416114">
-        - i'm iris or ray, im 5teen <br>
+        - i'm iris or ray, im 6teen <br>
         - she/they <3 <br>
         - dont be shy, bmf!! <br>
         - ask for my socials! <br>
