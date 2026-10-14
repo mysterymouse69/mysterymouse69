@@ -18,7 +18,7 @@ ___
 
 ![cute_cute](https://tomomi.neocities.org/pixeles/257.gif)
 
-[my tumblr page ♡](https://tumblr.com/colvmboner) ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ [my steam account ♡](https://steamcommunity.com/profiles/76561199815401252)
+[my tumblr page ♡](https://tumblr.com/cokezeroheart) ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚ [my steam account ♡](https://steamcommunity.com/profiles/76561199815401252)
 
 <table>
   <tr>
